@@ -1,2 +1,0 @@
-# main
-kerjain jangan lupa
